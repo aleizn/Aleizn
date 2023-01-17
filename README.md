@@ -3,6 +3,8 @@
 ## ¡Hola! 😼 Bienvenido(a) te presento mí Perfil ✨
 ### **🌈 Espero te encuentres bien ✨**
 
+✅Thx for choosing Aleizn-MD . Espero que el bot sea de vuestro agrado, y si fue así, regálame una estrella por favor :D
+
 <p align="center"><img title="Gata Dios" src="https://78.media.tumblr.com/10275a23919ec5643d8cec044cb76df4/tumblr_p3izpzoiyu1vkfsowo1_400.gif"></p>
 
 <div align="center">
